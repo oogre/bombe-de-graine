@@ -105,12 +105,9 @@ de la dernière guerre de pouvoir. <br/>
 Il y a du travail à accomplir, de la passion à engager, <br/>
 du confort à procrastiner pour faire vivre dans notre institution <br/>
 Joie, Partage et Créativité.<br/>
-<br/>
-<br/>
 Il est préférable d'attendre un jour de pluie au printemps <br/>
 pour larguer vos bombes de graines. Au terme de ce courrier, <br/>
 c'est sur ce point que ma métaphore tombe à l'eau. <br/>
-<br/>
 Puisse-t-elle fleurir, vous inspirer, <br/>
 ouvrir le paysage vers une perspective enviable, <br/>
 motiver chacun pour cette année scolaire riche de beaucoup d'aventures.<br/>
