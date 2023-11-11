@@ -35,7 +35,7 @@ si telle est son ambition, <br/>
 faire germer le plein potentiel des étudiant·e·s qui la côtoient. <br/>
 <br/>
 
-#### Une école d'art ne doit jamais être à l'image de la société.
+##### Une école d'art ne doit jamais être à l'image de la société.
 Nous sentons jour après jour, épidémies après pénuries, conflits, guerres, <br/>
 enjeux de pouvoir absurde et politique de désertification du monde <br/>
 que tout doit changer. Nous sommes dans un moment où il est devenu capital <br/>
@@ -52,7 +52,7 @@ se prive de son pouvoir d'action à transformer la société, <br/>
 sur ce chemin c'est Dépression qui gagne à la fin. <br/>
 <br/>
 
-#### Dans une école d'art, il n'y a pas de lieu clos,
+##### Dans une école d'art, il n'y a pas de lieu clos,
 certainement pas de salle de classe. Aucune personne <br/>
 n'est dépositaire d'un savoir absolument supérieur qui, <br/>
 nommé par le très haut, a la lourde tâche de répandre son savoir. <br/>
@@ -78,8 +78,8 @@ justifie sa pratique, son existence. <br/>
 C'est je pense au travers de cet argumentaire, <br/>
 l'activité la plus noble qu'il soit de faire tourner la baraque <br/>
 de s'occuper de l'entretien, des contrats, des conflits et des repas. <br/>
-#### Ces acteurs·ices sont l'argile de ma bombe de graines. Sans vous, <br/>
-l'institution s'effondre, vous êtes les murs si précieux <br/>
+##### Ces acteurs·ices sont l'argile de ma bombe de graines. 
+Sans vous, l'institution s'effondre, vous êtes les murs si précieux <br/>
 pour qui cherche à afficher son œuvre. <br/>
 <br/>
 À la tête de l'institution, ne devrait se trouver que quelques gouttes d'eau <br/>
@@ -88,7 +88,7 @@ permettant le passage d'un atome à l'autre. <br/>
 Solvant ultime indispensable au vivant. <br/>
 <br/>
 
-#### Le terreau est constitué des enseignant·e·s,
+##### Le terreau est constitué des enseignant·e·s,
 ils et elles ont vu le monde, en ont gardé des histoires <br/>
 et des petits morceaux. Elles ont été arbres, pommes et graines. <br/>
 Tout ça à la fois. Dans le rôle qui est le leur <br/>
@@ -97,7 +97,7 @@ de rites primordiaux appelé Culture, cette magie qui transforme <br/>
 par la danse les rivières de larmes en fontaines de rires.<br/>
 <br/>
 
-## Nos graines parfois vues comme des pépins c'est l'avenir.
+##### Nos graines parfois vues comme des pépins c'est l'avenir.
 Quoi qu'il arrive, quoi qu'on leur montre, quoi qu'on leur donne à manger <br/>
 elles germeront c'est certain. C'est alors qu'elles raconteront <br/>
 là d'où elles viennent. <br/>
