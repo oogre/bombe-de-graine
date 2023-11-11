@@ -98,7 +98,7 @@ de rites primordiaux appelé Culture, cette magie qui transforme <br/>
 par la danse les rivières de larmes en fontaines de rires.<br/>
 <br/>
 
-## Nos graines parfois vues comme des pépins c'est l'avenir. <br/>
+## Nos graines parfois vues comme des pépins c'est l'avenir.
 Quoi qu'il arrive, quoi qu'on leur montre, quoi qu'on leur donne à manger <br/>
 elles germeront c'est certain. C'est alors qu'elles raconteront <br/>
 là d'où elles viennent. <br/>
