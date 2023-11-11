@@ -1,9 +1,9 @@
 À l’attention de tous, <br/>
 pour une floraison <br/>
 de l’ESA St Luc Liège<br/>
+<br/>
 
 # ceci est une bombe de graines
-
 Une portion d’argile en poudre,<br/>
 Trois portions de terreau,<br/>
 Des graines,<br/>
@@ -35,17 +35,47 @@ Afin, je l'espère, que cette institution chère à mon cœur puisse un jour, <b
 si telle est son ambition, <br/>
 faire germer le plein potentiel des étudiant·e·s qui la côtoient. <br/>
 <br/>
-## Une école d'art ne doit jamais être à l'image de la société.
 
-Nous sentons jour après jour, épidémies après pénuries, conflits, guerres, enjeux de pouvoir absurde et politique de désertification du monde que tout doit changer. Nous sommes dans un moment où il est devenu capital de construire et promouvoir de nouvelles narrations. <br/>
-Spéculation, Médication et Sécurisation incarnent une trinité qui a presque tout dévoré. Essayer de produire la vision d'un horizon enviable est l'enjeu de la décennie pour les artistes de tous bords. Au travers de mots, d'images et de sons, nous avons la charge de nourrir les imaginaires, les rêves et donc les projets de demain. Nos histoires doivent avoir au moins cette ambition, sans quoi, l'art est mort avec dix ans d'avance sur nos espoirs fragiles d'un avenir heureux. Chaque personne ne courant que pour son confort et sa tranquillité se prive de son pouvoir d'action à transformer la société, sur ce chemin c'est Dépression qui gagne à la fin. <br/>
+## Une école d'art ne doit jamais être à l'image de la société.
+Nous sentons jour après jour, épidémies après pénuries, conflits, guerres, <br/>
+enjeux de pouvoir absurde et politique de désertification du monde <br/>
+que tout doit changer. Nous sommes dans un moment où il est devenu capital <br/>
+de construire et promouvoir de nouvelles narrations. <br/>
+Spéculation, Médication et Sécurisation incarnent une trinité <br/>
+qui a presque tout dévoré. Essayer de produire la vision d'un horizon enviable <br/>
+est l'enjeu de la décennie pour les artistes de tous bords. <br/>
+Au travers de mots, d'images et de sons, nous avons la charge <br/>
+de nourrir les imaginaires, les rêves et donc les projets de demain. <br/>
+Nos histoires doivent avoir au moins cette ambition, sans quoi, <br/>
+l'art est mort avec dix ans d'avance sur nos espoirs fragiles d'un avenir heureux. <br/>
+Chaque personne ne courant que pour son confort et sa tranquillité <br/>
+se prive de son pouvoir d'action à transformer la société, <br/>
+sur ce chemin c'est Dépression qui gagne à la fin. <br/>
 <br/>
-Dans une école d'art, il n'y a pas de lieu clos, certainement pas de salle de classe. Aucune personne n'est dépositaire d'un savoir absolument supérieur qui, nommé par le très haut, a la lourde tâche de répandre son savoir. <br/>
+
+## Dans une école d'art, il n'y a pas de lieu clos,
+certainement pas de salle de classe. Aucune personne <br/>
+n'est dépositaire d'un savoir absolument supérieur qui, <br/>
+nommé par le très haut, a la lourde tâche de répandre son savoir. <br/>
 <br/>
-Il n'y a que des ateliers où, ensemble, nous nous salissons les mains pour arriver à un but dont nous avons discuté en amont. Rendre nos idées matérielles pour les partager est ce que nous faisons. Atelier est le nom des endroits où on fabrique, on forge, on se brûle. Nous nous y confrontons à la rudesse du monde. C'est un lieu dangereux, où nous nous sentons vivre car nous y prenons des risques. Il s'agit d'une terre inconnue dans laquelle certe le ou la plus expérimenté·e parle le plus. Mais bien vite, les nouvelles questions amenées par l'ignorance et l'originalité des points de vue des jeunes nécessitent de tout réinventer, réorganiser et recommencer. <br/>
+Il n'y a que des ateliers où, ensemble, nous nous salissons les mains <br/>
+pour arriver à un but dont nous avons discuté en amont. <br/>
+Rendre nos idées matérielles pour les partager est ce que nous faisons. <br/>
+Atelier est le nom des endroits où on fabrique, on forge, on se brûle. <br/>
+Nous nous y confrontons à la rudesse du monde. C'est un lieu dangereux, <br/>
+où nous nous sentons vivre car nous y prenons des risques. Il s'agit <br/>
+d'une terre inconnue dans laquelle certe le ou la plus expérimenté·e <br/>
+parle le plus. Mais bien vite, les nouvelles questions amenées <br/>
+par l'ignorance et l'originalité des points de vue des jeunes <br/>
+nécessitent de tout réinventer, réorganiser et recommencer. <br/>
 <br/>
-Ces ateliers d'art, ne peuvent de surcroît n'avoir que des portes ouvertes, afin d'accueillir le plus souvent possible la badaude et le chaland venu voir le monde. Car, la seule et unique tâche d'un·e artiste est de rendre le monde visible. C'est dans ce sens qu'elle ou il justifie sa pratique, son existence. <br/>
+Ces ateliers d'art, ne peuvent de surcroît n'avoir que des portes ouvertes, <br/>
+afin d'accueillir le plus souvent possible la badaude et le chaland <br/>
+venu voir le monde. Car, la seule et unique tâche d'un·e artiste <br/>
+est de rendre le monde visible. C'est dans ce sens qu'elle ou il <br/>
+justifie sa pratique, son existence. <br/>
 <br/>
+
 C'est je pense au travers de cet argumentaire, l'activité la plus noble qu'il soit de faire tourner la baraque, de s'occuper de l'entretien, des contrats, des conflits et des repas. Ces acteurs sont l'argile de ma bombe de graines. Sans vous, l'institution s'effondre, vous êtes les murs si précieux pour qui cherche à afficher son œuvre. <br/>
 À la tête de l'institution, ne devrait se trouver que quelques gouttes d'eau qui, par capillarité, se retrouveraient partout liant, canal et transparent permettant le passage d'un atome à l'autre. Solvant ultime indispensable au vivant. <br/>
 <br/>
