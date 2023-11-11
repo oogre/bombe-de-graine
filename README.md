@@ -1,9 +1,9 @@
 À l’attention de tous, <br/>
 pour une floraison <br/>
 de l’ESA St Luc Liège<br/>
-<br/>
-# ceci est une bombe de graines<br/>
-<br/>
+
+# ceci est une bombe de graines
+
 Une portion d’argile en poudre,<br/>
 Trois portions de terreau,<br/>
 Des graines,<br/>
@@ -35,7 +35,8 @@ Afin, je l'espère, que cette institution chère à mon cœur puisse un jour, <b
 si telle est son ambition, <br/>
 faire germer le plein potentiel des étudiant·e·s qui la côtoient. <br/>
 <br/>
-## Une école d'art ne doit jamais être à l'image de la société. <br/>
+## Une école d'art ne doit jamais être à l'image de la société.
+
 Nous sentons jour après jour, épidémies après pénuries, conflits, guerres, enjeux de pouvoir absurde et politique de désertification du monde que tout doit changer. Nous sommes dans un moment où il est devenu capital de construire et promouvoir de nouvelles narrations. <br/>
 Spéculation, Médication et Sécurisation incarnent une trinité qui a presque tout dévoré. Essayer de produire la vision d'un horizon enviable est l'enjeu de la décennie pour les artistes de tous bords. Au travers de mots, d'images et de sons, nous avons la charge de nourrir les imaginaires, les rêves et donc les projets de demain. Nos histoires doivent avoir au moins cette ambition, sans quoi, l'art est mort avec dix ans d'avance sur nos espoirs fragiles d'un avenir heureux. Chaque personne ne courant que pour son confort et sa tranquillité se prive de son pouvoir d'action à transformer la société, sur ce chemin c'est Dépression qui gagne à la fin. <br/>
 <br/>
