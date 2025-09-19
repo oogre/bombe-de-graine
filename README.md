@@ -1,3 +1,6 @@
+![Illustration de la lettre avec sa bombe accrocher en couverture](bombeDeGraine.jpg "Illustration de la lettre avec sa bombe accrocher en couverture")
+
+
 À l’attention de tous, <br/>
 pour une floraison <br/>
 de l’ESA St Luc Liège<br/>
