@@ -1,4 +1,4 @@
-![Illustration de la lettre avec sa bombe accrocher en couverture](bombeDeGraine.jpg "Illustration de la lettre avec sa bombe accrocher en couverture")
+![Illustration de la lettre avec sa bombe accrochée en couverture](bombeDeGraine.jpg "Illustration de la lettre avec sa bombe accrochée en couverture")
 
 
 À l’attention de tous, <br/>
